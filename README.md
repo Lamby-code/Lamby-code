@@ -1,4 +1,4 @@
-- Hi, I’m @Lamby-code🐏,
+# Hi, I’m @Lamby-code🐏
 - I like play games🎮 and watch anime👁️
 - I’m interested in learning tech💻
 
